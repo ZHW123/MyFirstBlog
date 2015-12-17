@@ -1,1 +1,1 @@
-ÖìºÍÎÈµÄ²©¿Í£¡
+This is the first blog!
